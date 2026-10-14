@@ -43,3 +43,5 @@ Sun holds 99.8% of the system's mass. Mercury's year is 88 Earth days. Venus ave
 ## Credits
 
 Typeface: Syne by Bonjour Monde. Smooth scrolling: Lenis by Studio Freight / darkroom.engineering.
+
+Thank Youuuuu.........
